@@ -1,4 +1,4 @@
-# Strategic insights deck prepared for a comapny in banking inductry
+# Strategic insights deck prepared for a comapny in banking industry
 
 ## Background
 
